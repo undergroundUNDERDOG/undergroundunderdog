@@ -6,7 +6,7 @@
 <hr>
   <p>Name's Kevin or Kenhorō, but feel free to call me with the name of the character you met me.
  <br> | 20 years old | purpleblood | bard of light | prospit dreamer |</p>
-<p>I love both Gamzee and Kanaya and I make them love each other in the most queerplatonic way possible <3 <abbr title="pls do it, make me talk about them...">(but don't make me talk about them)</abbr>
+<p>I love both Gamzee and Kanaya and I make them love each other in the most queerplatonic way possible <3 (but don't make me talk about them...[I will talk way too much if you do])
 <hr>
 <p>Feel free to cuddle and hide (C+H) with any of my ponies!!.
 <br>No need to talk to me to snuggle! but it's appreciated.</p>
